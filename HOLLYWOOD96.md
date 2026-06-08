@@ -1,10 +1,10 @@
 
 artist         
 -----------------------------------------------
-Rodolfo Abrantes (vocals)  
-Digão (guitar, vocals)
-Canisso (bass)               
-Fred Castro (drums)              
+Rodolfo Abrantes (***vocals, guitar***)  
+Digão (***guitar, vocals***)
+Canisso (***bass***)               
+Fred Castro (***drums***)              
                                
                                
 crew
@@ -90,6 +90,19 @@ PRO #1c (incomplete)
  Soundboard > Unknown 
  Lowest Generation: 
  Length / Sound Quality: 22 min — 8.5 
+ Notes: 
+ • Posted to YouTube on November 26, 2018. 
+ • Missing Tora Tora, Nega Jurema, Puteiro em João Pessoa, Palhas do Coqueiro, Bestinha, Minha Cunhada, Rapante, Marujo
+ • Features soundboard
+
+ -----------------------------------------------
+
+PRO #2 (incomplete)
+| ----------------------------------------------------------------------------------|
+ Equipment:  
+ Soundboard > Unknown 
+ Lowest Generation: 
+ Length / Sound Quality: 31 min — 8.5 
  Notes: 
  • Posted to YouTube on November 26, 2018. 
  • Missing Tora Tora, Nega Jurema, Puteiro em João Pessoa, Palhas do Coqueiro, Bestinha, Minha Cunhada, Rapante, Marujo
