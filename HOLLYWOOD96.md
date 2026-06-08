@@ -1,9 +1,10 @@
 
 artist         
 -----------------------------------------------
-Evan Fundora (vocals, guitar)   
-Hank Barna (bass)               
-Jared Cox (drums)              
+Rodolfo Abrantes (vocals)  
+Digão (guitar, vocals)
+Canisso (bass)               
+Fred Castro (drums)              
                                
                                
 crew
