@@ -95,18 +95,7 @@ PRO #1c (incomplete)
  • Missing Tora Tora, Nega Jurema, Puteiro em João Pessoa, Palhas do Coqueiro, Bestinha, Minha Cunhada, Rapante, Marujo
  • Features soundboard
 
- -----------------------------------------------
 
-PRO #2 (incomplete)
-| ----------------------------------------------------------------------------------|
- Equipment:  
- Soundboard > Unknown 
- Lowest Generation: 
- Length / Sound Quality: 31 min — 8.5 
- Notes: 
- • Posted to YouTube on November 26, 2018. 
- • Missing Tora Tora, Nega Jurema, Puteiro em João Pessoa, Palhas do Coqueiro, Bestinha, Minha Cunhada, Rapante, Marujo
- • Features soundboard
 
 UNCIRCULATING RECORDINGS
 -----------------------------------------------
