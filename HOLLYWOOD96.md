@@ -101,13 +101,14 @@ PRO #1b
 
 PRO #1c (incomplete)
 | ----------------------------------------------------------------------------------|
-| Equipment:  |
-| Soundboard > Unknown |
-| Lowest Generation: |
-|Length / Sound Quality: 22 min — 8.5 |
-| Notes: |
-| • Posted to YouTube on November 26, 2018. |
-| • Missing Tora Tora, Nega Jurema, Puteiro em João Pessoa, Palhas do Coqueiro, Bestinha, Minha Cunhada, Rapante, Marujo |
+ Equipment:  
+ Soundboard > Unknown 
+ Lowest Generation: 
+ Length / Sound Quality: 22 min — 8.5 
+ Notes: 
+ • Posted to YouTube on November 26, 2018. 
+ • Missing Tora Tora, Nega Jurema, Puteiro em João Pessoa, Palhas do Coqueiro, Bestinha, Minha Cunhada, Rapante, Marujo
+ • Features soundboard
 
 UNCIRCULATING RECORDINGS
 -----------------------------------------------
