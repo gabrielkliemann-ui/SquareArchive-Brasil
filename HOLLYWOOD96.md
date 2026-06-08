@@ -1,12 +1,12 @@
 
-ARTIST         
+artist         
 -----------------------------------------------
 Evan Fundora (vocals, guitar)   
 Hank Barna (bass)               
 Jared Cox (drums)              
                                
                                
-CREW
+crew
 -----------------------------------------------
 UNKNOWN (Tour Manager)
 UNKNOWN (Lighting)              
@@ -17,26 +17,26 @@ UNKNOWN (Guitar Tech)
                               
 
 
- BUYER                
+ buyer                
 -----------------------------------------------
  UNKNOWN                         
 
-SCHEDULE
+schedule
 ------------------------------------------------
  Doors:
  
  Showtime:
  
 -----------------------------------------------
-SETLIST
+setlist
 -
 
-### Soundcheck:
+### soundcheck:
 
  no info
 
 -----
-### SET RANGE
+### set range
  
 
 
