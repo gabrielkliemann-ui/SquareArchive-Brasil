@@ -2,7 +2,7 @@
 artist         
 -----------------------------------------------
 Rodolfo Abrantes (***vocals, guitar***)  
-Digão (***guitar, vocals***)
+Digão (***guitar, vocals***)   
 Canisso (***bass***)               
 Fred Castro (***drums***)              
                                
