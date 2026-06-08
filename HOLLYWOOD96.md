@@ -40,37 +40,21 @@ SETLIST
  
 
 
- What's You're Name Again?
- 
- Paper View
- 
- Trashman
- 
- High Chair (false start)
- 
- High Chair
- 
- Taste The Rain
- 
- Pleasantries
- 
- Pigsty
- 
- Piddle my Sheets
- 
- B for Boy
- 
- Fatal Love
- 
- Shiver
- 
- Pickle Song
- 
- Kiss My Kitty Cat
- 
- Mr.John
-
-                            
+ Tora Tora  
+ Eu Quero Ver o Oco 
+ Bê a Bá 
+ Cajueiro  
+ Rio das Pedras  
+ Minha Cunhada  
+ Marujo  
+ Rapante  
+ Bestinha  
+ Esporrei na Manivela  
+ Selim  
+ O Pão da Minha Prima  
+ Nega Jurema  
+ Puteiro em João Pessoa   
+ Palhas do Coqueiro                      
                                       
                                 
                                                        
